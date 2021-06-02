@@ -1,1 +1,1 @@
-[tex] (https://github.com/Lc2021-coder)
+[Github] (https://github.com/Lc2021-coder)
